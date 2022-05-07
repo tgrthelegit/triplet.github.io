@@ -1,1 +1,0 @@
-# triplet.github.io
